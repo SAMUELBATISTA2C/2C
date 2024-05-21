@@ -8,5 +8,5 @@ Sejam todos bem vindos
 
 ![](https://media1.tenor.com/m/5WSpjP36oSUAAAAC/jokic-nikola.gif)
 
-📧00001109389486sp@al.educacao.sp.gov.br
+contato email 📧 00001109389486sp@al.educacao.sp.gov.br
 
